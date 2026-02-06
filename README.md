@@ -1,2 +1,0 @@
-# Red-Gold
-Red Gold
